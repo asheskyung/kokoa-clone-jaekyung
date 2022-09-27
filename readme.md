@@ -1,3 +1,3 @@
 #kokoa clone 2022 Update
 
-Asheskyung is very good!
+Html & Css are so much fun!
